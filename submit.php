@@ -1,0 +1,1 @@
+Muvaffaqiyatli ro`yxatdan o`tildi!
